@@ -1,7 +1,7 @@
 # Fernanda Coutinho
 
-Graduated in Production Engineering, Database Technologist.
-I work in the quality and Lean area contributing to the continuous improvement of processes.
+Graduated in Production Engineering and Database Technology.
+I work in the quality and Lean management areas, contributing to the continuous improvement of processes
 
 Some hobbies are trekking, spending time with my family and traveling 🥾🌍💚
 
